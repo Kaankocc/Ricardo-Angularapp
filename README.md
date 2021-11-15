@@ -1,1 +1,1 @@
-﻿# A fucking master piece
+﻿# A fucking masterpiece
